@@ -1,4 +1,4 @@
 Github-Streaker
 ===============
 
-Github Streaker
+I love to streak!
